@@ -4,7 +4,7 @@ Discovering a more accurate interpretation of the word of God
 
 ## Galatians 5:16 Spirit led. Enjoy life's pleasures!
 
-> "Walk by the spirit, and you will not gratify the desires of ~~the flesh~~ sinful nature"
+> "Walk by the spirit, and you will not gratify the desires of ~~the flesh~~ _sinful nature_"
 
 - Flesh = Sarx (original greek) = Sinful nature
   - So this was a misinterpretation!
