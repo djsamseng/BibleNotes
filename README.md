@@ -4,7 +4,7 @@ Discovering a more accurate interpretation of the word of God
 
 ## Galatians 5:16 Spirit led. Enjoy life's pleasures!
 
-> "Walk by the spirit, and you will not gratify the desires of ~~the flesh~~ _sinful nature_".
+> "Walk by the spirit, and you will not gratify the desires of ~~the flesh~~ _sinful nature_". (NIV)
 
 - Flesh = Sarx (original greek) = Sinful nature
   - So this was a misinterpretation!
@@ -18,7 +18,7 @@ Discovering a more accurate interpretation of the word of God
 > Get away with me and you’ll recover your life. I’ll show you how to take a real rest. 
 > Walk with me and work with me—watch how I do it. Learn the unforced rhythms of grace. 
 > I won’t lay anything heavy or ill-fitting on you. 
-> Keep company with me and you’ll learn to live freely and lightly.
+> Keep company with me and you’ll learn to live freely and lightly. (NIV)
 
 - Jesus frees us from the law
   - Instead he gives us a spirit led life. One that does good because it is a joyful way to live
@@ -33,7 +33,7 @@ Discovering a more accurate interpretation of the word of God
 
 ## Hebrews 4:15 A God who empathizes with us
 > For we do not have a high priest who is unable to empathize with our weaknesses, 
-> but we have one who has been tempted in every way, just as we are—yet he did not sin.
+> but we have one who has been tempted in every way, just as we are—yet he did not sin. (NIV)
 
 - Jesus was tempted
 - We shouldn't be ashamed of our temptations
@@ -42,4 +42,19 @@ Discovering a more accurate interpretation of the word of God
 - Be led by the spirit to do good instead of by guilt to not do bad
 
 
-Bible quotes are from the NIV
+## Romans 12 Enjoy life!
+> Embracing what God does for you is the best thing you can do for him
+
+- There is so much gold in Romans 12. If you've lost purpose, take a moment and [read the message translation](https://www.biblegateway.com/passage/?search=Romans+12&version=MSG)
+- With God at the center, you get joy, love, peace, compassion even when life is tough, even when you're unhappy. You can find joy even in unhappiness.
+  - We have to slowly reprogram ourselves to focus on this. It doesn't always come easy.
+
+> The only accurate way to understand ourselves is by what God is and by what he does for us, not by what we are and what we do for him. (Romans 12:3 MSG)
+
+> Love from the center of who you are; don’t fake it. (Romans 12:9 MSG)
+
+> Don’t burn out (Romans 12:11 MSG)
+
+> Don’t hit back; discover beauty in everyone... “I’ll do the judging,” says God. “I’ll take care of it.” (Romans 12:17-19 MSG)
+
+>  Don’t let evil get the best of you; get the best of evil by doing good. (Romans 12:20-21 MSG)
