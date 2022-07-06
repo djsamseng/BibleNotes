@@ -25,6 +25,19 @@ Discovering a more accurate interpretation of the word of God
   - Following the law to the letter clearly didn't work. It lead to bitterness, pride and lack of love. That's why Jesus came to show us a new way
 - Jesus frees us from guilt
 
+## Luke 10:25 The Good Samaritan
+
+> "what must I do to inherit eternal life?"... "Love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind"; and, "Love your neighbor as yourself." (Luke 10:25-27 NIV)
+
+- Jesus isn't telling us to go around looking for people in ditches
+  - Jesus didn't solve poverty, he didn't give money to all the beggars in the world
+  - But he still loved them
+    - Sometimes God will put it in your heart to help right now but sometimes God's plan is a different way
+- Jesus is telling us what an eternal life looks like
+1. Love God
+2. Love one another
+- If we do these things, we will enjoy a spirit filled life
+  - Eternal = "noun: used to refer to an everlasting or universal spirit, as represented by God."
 
 ## Why did Jesus need to die and rise again?
 - God is all powerful and could have saved us without sacrificing himself on the cross
