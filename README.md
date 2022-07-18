@@ -44,6 +44,13 @@ Discovering a more accurate interpretation of the word of God
 - He did this as evidence to us so that we might believe that God can save us
 - If God can die a torterous death, suffering deep pain, yet rise again three days later to do meraculous things, **then God can save you too** from your pain and use you to do meraculous things
 
+## God is the same. God never changes
+- **This is completely taken out of context**, the Bible does not actually say this as people lead you to believe
+- God's love for you never changes
+- God is a forever being. He never *changes* where `never changes = will never cease to exist`
+- Thus we can always put our hope in God
+- However God can still change, can still change his mind, can still change the world. God did not limit himself or his abilities. He can change.
+
 ## Hebrews 4:15 A God who empathizes with us
 > For we do not have a high priest who is unable to empathize with our weaknesses, 
 > but we have one who has been tempted in every way, just as we are—yet he did not sin. (NIV)
