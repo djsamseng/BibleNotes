@@ -1,6 +1,6 @@
 # Bible Notes
 
-Discovering a more accurate interpretation of the word of God
+Discovering the word of God
 
 ## Belief Statement
 - I believe in an all powerful, infinitely loving God. God loves you
