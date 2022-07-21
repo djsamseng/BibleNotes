@@ -2,6 +2,20 @@
 
 Discovering a more accurate interpretation of the word of God
 
+## Belief Statement
+- I believe in an all powerful, infinitely loving God. God loves you
+  - Love is kind, forgiving, patient, humble and everlasting
+- The two most important things God tells us is to:
+  - Love God
+  - Love others
+- Thank God that God hasn't answered all my prayers. God knows better than I do
+- The Bible is made up of God inspired writings by various humans
+  - Just like how Jesus spoke in parrables/stories, the Bible is also made up of parrables/stories
+    - This is because humans learn through stories not literal instructions. Computers learn through literal instructions. Since the Bible was written for humans we should interpret the stories of the Bible not always as literal instructions but more for the meaning and higher purpose of the stories
+  - The Bible is **not** a verbatim narration of events
+  - Humans were inspired to write about their encounters with the spirit of God, with the son of God (Jesus) and occasionally God the father (or these were stories and didn't really actually happen, not 100% sure but whether it happened or not isn't the point anyway)
+- Just because the Bible says `do X` doesn't mean `do X` applies in all situations or even in today's age. `do X` because the Bible says so would be called `taking something out of context`. The context of the Bible is a story of an all powerful, all loving God that wants us to love God and love each other. That should be the basis of everything we do no matter what `do X` we find in the Bible.
+
 ## Galatians 5:16 Spirit led. Enjoy life's pleasures!
 
 > "Walk by the spirit, and you will not gratify the desires of ~~the flesh~~ _sinful nature_". (NIV)
