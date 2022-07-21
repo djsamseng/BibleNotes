@@ -15,6 +15,7 @@ Discovering the word of God
   - The Bible is **not** a verbatim narration of events
   - Humans were inspired to write about their encounters with the spirit of God, with the son of God (Jesus) and occasionally God the father (or these were stories and didn't really actually happen, not 100% sure but whether it happened or not isn't the point anyway)
 - Just because the Bible says `do X` doesn't mean `do X` applies in all situations or even in today's age. `do X` because the Bible says so would be called `taking something out of context`. The context of the Bible is a story of an all powerful, all loving God that wants us to love God and love each other. That should be the basis of everything we do no matter what `do X` we find in the Bible.
+- Even if someone came with proof that Jesus never existed, I would still believe in Jesus. I would still believe that he has forgiven us, saved us and given us eternal life. This is because it's about the story that God is trying to tell us. God wants to convince you that the underlying message is true. Whether it happened verbatim or not doesn't really matter. What matters is that God loves you, God has saved you, God has forgiven you and God has given you an eternal life with him. Whatever methods he uses to make that true is good with me!
 
 ## Galatians 5:16 Spirit led. Enjoy life's pleasures!
 
