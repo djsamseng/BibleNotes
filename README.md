@@ -93,3 +93,32 @@ Discovering the word of God
 > Don’t hit back; discover beauty in everyone... “I’ll do the judging,” says God. “I’ll take care of it.” (Romans 12:17-19 MSG)
 
 >  Don’t let evil get the best of you; get the best of evil by doing good. (Romans 12:20-21 MSG)
+
+## How would you act if ... How would you treat others if..
+
+- How would you act if you knew God was with you whereever you go?
+
+> For the Lord your God will be with you whever you go (Joshua 1:9)
+
+> Be strong, courageous, not afraid, not discourages (Joshua 1:9)
+
+- How would you treat others if you knew God was using them too?
+  - God uses the least of us. Jesus wasn't born into a rich family. God can use you too.
+  - We should treat the least of us as miracle workers
+
+- How would you act if you knew God was doing something new in you today?
+  - Enjoy life a bit more?
+  - Try something new?
+  - Have some fun?
+
+- What promised land have you put on hold? What wilderness have you settled into?
+  - Why hasn't God delivered me into the promised land yet?
+    - Do you really think you are ready for your promised land? Do you have what it takes?
+      - You'll never be fully ready, it's only God who can make you fully ready
+      - Is God first in your life?
+      
+## The Tithe
+- The tithe originally was for setting aside money for those who couldn't afford their basic needs. It was a statement that we're all in this together.
+- Later the church heard about people in a foreign country putting aside money to help each other in their community and the church wanted a piece of the pie
+- So don't fall for the church guilting you into giving them and **only them** money. The tithe goes to God, to helping God's people, to where God has put on your heart to give money in accordance to how God has called you to be a good steward.
+- Just because someone quotes a Bible verse doesn't make a scam not a scam. There are plenty of examples throughout history of the church abusing donations. I personally have fallen for this trap. I didn't trust what God had put in my heart because someone made me believe that my heart was evil by using Bible verses out of context. This still happens today. But don't give up! There are plenty of good causes and great people in the church doing great things with the donations they do receive. None of us are perfect. If it's on your heart to give, then give!
