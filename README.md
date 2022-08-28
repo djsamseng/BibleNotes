@@ -106,8 +106,10 @@ Discovering God
 
 - A Savior saves
   - If Jesus is only your savior then you are always needing saving
+  - This is the blood of Jesus. This is what Christ has already done for us
 - A Lord instructs
   - If Jesus is your Lord, then you are actively practicing and improving your life as a Christian
+  - The is the living water of Jesus. This is what Chris is doing through us and in our lives.
 - Amen
   - The first half means `let it be`
   - The second half means that I am signing up to do my part
