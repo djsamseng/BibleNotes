@@ -1,6 +1,6 @@
 # Bible Notes
 
-Discovering the word of God
+Discovering God
 
 ## Belief Statement
 - I believe in an all powerful, infinitely loving God. God loves you
@@ -93,6 +93,24 @@ Discovering the word of God
 > Don’t hit back; discover beauty in everyone... “I’ll do the judging,” says God. “I’ll take care of it.” (Romans 12:17-19 MSG)
 
 >  Don’t let evil get the best of you; get the best of evil by doing good. (Romans 12:20-21 MSG)
+
+## We Preach Christ, No More No Less
+
+> We preach Christ, warning people not to add to the Message. We teach in a spirit of profound common sense so that we can bring each person to maturity. To be mature is to be basic. Christ! No more, no less. (Colossians 1:28 MSG)
+
+## Jesus as your Lord and Savior
+
+> If you declare with your mouth, “Jesus is Lord,” and believe in your heart that God raised him from the dead, you will be saved. (Romans 10:9 NIV)
+
+> Instead, one of the soldiers pierced Jesus’ side with a spear, bringing a sudden flow of blood and water. (John 19:34 NIV)
+
+- A Savior saves
+  - If Jesus is only your savior then you are always needing saving
+- A Lord instructs
+  - If Jesus is your Lord, then you are actively practicing and improving your life as a Christian
+- Amen
+  - The first half means `let it be`
+  - The second half means that I am signing up to do my part
 
 ## How would you act if ... How would you treat others if..
 
