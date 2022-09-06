@@ -16,7 +16,7 @@
 
 - The Jews brought defiled food as offerings and called that a burden. Malachi condemns this.
 - Malachi sarcastically questions the people on "It is futile to serve" (Malachi 3:14 NIV)
-- Malachi is trying to get the people back on the right track. **But Malachi isn't setting the rules**. We can't use Malachi as strict rules on how to tithe. Instead we can use Malachi as motivation and hope in what God and Jessus have told us to do.
+- Malachi is trying to get the people back on the right track. **But Malachi isn't setting the rules**. We can't use Malachi as strict rules on how to tithe. Instead we can use Malachi as motivation and hope in what God and Jesus have told us to do.
 
 > You have wearied the Lord with your words (Malachi 2:17 NIV)
 
