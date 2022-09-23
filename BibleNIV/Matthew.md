@@ -96,6 +96,36 @@
 - 11: God gives gifts to those who ask
   - active learning, active achieving
 - 12: Do to others what you would have them do to you, for this sums up the Law and the prophets
+- 13: Narrow gate - leads to life. Wide gate - leads to desctruction
+  - Successful people take the path less traveled, try something new and discover new life
+  - There's many temptations and alternatives to Jesus' way but they lead to destruction
+  - Only through Jesus do we get to heaven and true joy
+- 15: Watch out for false prophets - by their fruit you will recognize them
+  - Do they produce joy, peace and love?
+  - Are they on the path to destruction?
+  - Do they remain attached to Jesus?
+    - Jesus is the vine, we are the branches, and the fruit is what we produce (John 15:5)
+- 21: Only he who does the will of God will enter the kingdom of heaven
+  - This is the deciding factor on who enters the kingdom of heaven
+  - Paul in Romans 10:9
+    > If you confess with your mouth "Jesus is Lord" and believe in your heart that God raised him from the dead you will be saved
+- 22: Many will claim to have done God's work but Jesus will say "I never knew you" thus in order to do God's will in order to enter the kingdom of heaven you must have Jesus know you. According to Paul this happens by inviting Jesus into your heart. With Jesus in your heart you will do the will of God
+- 24: Put the word of Jesus into practice
+  - wisdom: the house built upon the rock. It's steady among storms
+  - foolish man: doesn't practice Jesus' teachings and is destroyed by storms easily
+  - Jesus is the rock. Our foundation is in Jesus and God
+    > his bow stayed steady... because of the mightly Ore of Jacob, because of the shepard, the **rock** of Israel, because of your father's God who helps you, because of the Almighty (Genesis 49:24)
 
+    > my God is my rock (Psalm 18:2)
+    
+    > For they drank from the same spiritual rock... and that rock was Christ (1 Corintheans 10:4)
 
-
+#### Matthew 8
+- Matthew 8:4 
+  - Jesus after healing the man
+  > See that you don't tell anything (Matthew 8:4)
+  - Did not want to stir up the popular
+  - Don't go looking like a crazy person with just your words but instead "go show yourself to the priest... as a testimony to them"
+  - The messiaanic secret
+    - Jesus wanted to show by word and the deed the Messiah he was
+    - Now we are the messangers, **listen first then show them Jesus** 
