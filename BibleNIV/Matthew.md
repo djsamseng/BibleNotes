@@ -129,3 +129,45 @@
   - The messiaanic secret
     - Jesus wanted to show by word and the deed the Messiah he was
     - Now we are the messangers, **listen first then show them Jesus** 
+- 8:12 subjects of the kingdom of heaven = jews who thought their Judiasm was an inherited passport into the kingdom
+  - But Jesus says they will be thrown outside into the darkness
+- 8:17 carried our diseases = bore the burden of our diseases
+  - Jesus is with us in our pain
+- 8:21 first let me go and bury my father
+  - his father is still alive otherwise the man would have already been preoccupied with his father's burial thus he was asking to follow Jesus after his father dies
+  - Jesus answers that now is the time to follow Jesus
+  - the spiritually dead could bury the physical dead but the spiritually alive should be busy proclaiming the kingdom of God
+  - Jesus was responding to a teacher of the Law who valued children burying their parents. He's not commanding us to not bury our family
+- 8:26 "You of little faith" in respond to "Lord, save us!" when the storm comes
+  - seek first the kingdom of God and all things will be provided for you (6:30)
+- 8:34 pleaded Jesus to leave because they were converned about the financial loss of the pigs over the saving of the demon-possessed man
+  - don't prioritize money over people or Jesus
+  - could also be because they were afraid of the power of Jesus which they couldn't comprehend
+  - Jesus has power we don't understand. Will we accept it or reject it?
+
+#### Matthew 9
+- 9:2 When Jesus saw their faith as they had carried the man to have Jesus heal them
+  - work and what you do is evidence of your faith
+  - Same story as the man being lowered throught the roof in Mark 2:4
+- 9:6 So that you might know Jesus has the authority to forgive sins he heals the man
+  - Jesus didn't perform miracles to rid the Earth of evil but instead to prove to us that he can save us and bring us into heaven / eternal life
+- 9:10 when Jesus has dinner with the tax collectors and "sinners"
+  - 9:12 I desire mercy not sacrifice. For I have not come to call the righteous but sinners
+    - righteous = don't realize their need for salvation
+    - sinners = admitted sinners do realize their need of Jesus
+    - Focus on what you can do and the people you can reach instead of those you can't
+- 9:14 Jesus' disciples don't fast
+  - being with Jesus is the time to Celebrate! Fasting is for times of sorrow (Jesus dying on the cross)
+- 9:16 Putting an old patch on a new wine skin causes it to pull apart and ruins it
+  - Don't pull away from Jesus
+  - Don't mix the joy of Jesus (celebration) with the sorrow of loss (fasting)
+  - Jesus transforms you into new wine, Jesus is not a patch
+
+
+
+
+
+
+
+
+
