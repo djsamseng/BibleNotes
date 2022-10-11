@@ -162,6 +162,49 @@
   - Don't pull away from Jesus
   - Don't mix the joy of Jesus (celebration) with the sorrow of loss (fasting)
   - Jesus transforms you into new wine, Jesus is not a patch
+- 9:21 "If only I touch his cloak I will be healed"
+- 9:22 "Take heart daughter", he said, "your faith has healed you"
+  - "healed" in Greek actually means "saved"
+  - Both physical "be freed from your suffering" (Mark 5:34) and spiritual salvation "Go in peace" (Mark 5:34)
+- 9:24 "The girl is not dead butu asleep"
+  - Not permanently dead
+- "But they laughted at him"
+  - Be prepared for people to doubt you and laugh at you while doing the will of God
+- 9:25 "Took the girl by the hand and she got up"
+  - "they were completely astonished" (Mark 5:42)
+    - People were amazed by Jesus because of his authority. He used Godly power. He did not quote human authorities as other prophets did because Jesus' authority was directly from God
+- 9:29 "According to your faith" Jesus healed the blind **not** in proportion to your faith
+  - 17:20 parable of the mustard seed + moving the mountain
+    - It's not so much the quantity of their faith but the quality of their faith
+    - Move from here to here (the mountain)
+      - Proverbial statement meaning to remove great difficulties
+        - Psalm 54:10 "mountains be shaken... yet my unfailing love for you will not be shaken nor my convenant of peace be removed says the Lord who has compassion on you"
+    - Removing problems associated with doing the work of the kingdom
+    - Not actually moving mountains since this is in the context of the mustard seed
+      - The mustard seed references 13:31 which was about growing the kingdom of God
+ - Zechariah 4:7 Faith in the power of Go'ds spirit can overcome mountainous obsticles
+   - figurative mountains = obsticles
+ - Mark 9:23 "Everything is possible for him who believes"
+   - Set no limit on what God can do
+   - "help me overcome by unbelief"
+     - Human belief is never perfect
+     - Jesus points them to prayer. Their power comes from Jesus.
+ - Mark 11:23 "says to the mountain 'Go throw yourself into the sea' and does not doubt in his heart but believes that what hesays will happen it will be done **for** him. Therefore whatever you ask for in prayer, believe that you have **received** it, and it will be yours"
+   - You need to start taking action. Pray and God will give it to you. It may require action.
+- 9:30 "See that no one knows about this"
+  - 16:20 "not to tell anyone that he was the Christ"
+  - Because of the false concepts of the Jews who looked for a political messiah who would destroy all other kingdoms and give the Jews all the political power, Jesus didn't want to cause a revolution against Rome
+- 9:33 The man who had been mute spoke
+  - Isiah 35:6 "the mute tongue shout for joy" when Isiah 35:4 "your God will come"
+- 9:37 "The harvest is plentiful but the workers are few. Ask the Lord of the harvest therefore to send out workers into his harvest field"
+  - In response to Jesus "saw the crowds, he had compassion on them because they were harrassed and helpless like sheep without a shepard"
+    - Ezekiel 34:8 "declares the Sovereign Lord.. because my shepard did not search for my flock but cared for themselves rather than for my flock... I will rescue my flock from their mouths and it will no longer be food for them"
+      - Don't abuse others
+    - Ezekiel 34:8 " I will tend them in good pasture"
+      - Shepaards are faithless, God/Jesus become the good shepard
+    - Ezekiel 34:20 "The Sovereign Lord says to them: See I myself will judge between the fat sheep and the lean sheep"
+  - We are the workers, God is the new good shepard. God saves, we are the messangers
+  - Zechariah 10:2 people wander oppressed like sheep without a shepard because the shepards were abusing the people with false promises and false idols
 
 
 
