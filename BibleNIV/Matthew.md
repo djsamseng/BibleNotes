@@ -206,8 +206,25 @@
   - We are the workers, God is the new good shepard. God saves, we are the messangers
   - Zechariah 10:2 people wander oppressed like sheep without a shepard because the shepards were abusing the people with false promises and false idols
 
-
-
+#### Matthew 10
+- 10:5 "Do not go among the Gentiles or enter any town of the Samaritans. Go rather to the lost sheep of Israel"
+  - The good news was to be preclaimed first to the Jews
+  - After Jesus' ressurection, Jesus commands the message to be taken to all nations
+    - 28:19 "Therefore go and make disciples of all nations... and teaching them to obey everything I have commanded you. And surely I am with you always to the very end of the age"
+    - 21:43 "the kingdom of God will be taken away from you and given to a people who will produce its fruit"
+      - Taken from the Jews who rejected the gospel
+- 10:16 "I am sending you out like sheep among wolves. Therefore be as shrewd as snakes and as innocent as doves"
+  - Romans 16:19 "I want you to be wise about what is good and innocent about what is evil"
+    - Focus on the good, avoid what is bad
+  - shrewd = sharp ability in judgement
+  - Be careful about evil and remain innocent 
+- 10:19 "do not worry about what to say"
+  - This is in the context of being arrested
+  - "But when they arrest you, do not worry about what to say"
+    - Don't worry about defending yourself, you will be given what to say
+  - Luke 21:14 "But make up your mind not to worry beforehand how you will defend yourselves. For I wil give you words and wisdom that none of your adversaries wil be able to resist or contradict
+  - 10:20 "for it will not be you speaking but the Spirit of your Father speaking through you"
+    - Pray!
 
 
 
