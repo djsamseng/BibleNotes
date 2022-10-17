@@ -225,7 +225,11 @@
   - Luke 21:14 "But make up your mind not to worry beforehand how you will defend yourselves. For I wil give you words and wisdom that none of your adversaries wil be able to resist or contradict
   - 10:20 "for it will not be you speaking but the Spirit of your Father speaking through you"
     - Pray!
-
+- 10:22 "but he who stands firm to the end will be saved"
+  - Hebrews 3:6 "But Christ is faithful as a son over God's house. And we are his house, if we hold on to our courage and the hope of which we boast"
+    - Persevere in doing God's work. Doing God's will is how we are saved
+      - Matthew 7:21 "Not everyone who says to me 'Lord, Lord,' will enter the kingdom of heaven but only he who does the will of my Father who is in heaven"
+  - Hebrews 6:10 "God is not unjust; he will not forget your work and the love you have shown him as you have helped his people and continue to help them"
 
 
 
