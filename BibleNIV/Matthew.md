@@ -230,7 +230,18 @@
     - Persevere in doing God's work. Doing God's will is how we are saved
       - Matthew 7:21 "Not everyone who says to me 'Lord, Lord,' will enter the kingdom of heaven but only he who does the will of my Father who is in heaven"
   - Hebrews 6:10 "God is not unjust; he will not forget your work and the love you have shown him as you have helped his people and continue to help them"
-
+- 10:23 "you will not finish going through the cities of Israel before the Son of Man comes."
+  - Could be that we won't be able to convert everyone before Jesus comes again. This could mean that it's possible for people to be saved after Jesus' second coming
+    - 24:27 refers to the "coming of Son of Man" as the second coming
+- 10:26-33 Refer to Luke 12:1-12 which gives more detail
+  - Luke 12:1 "Be on your guard against the yeast of the Pharisees, which is hypocrisy. There is nothing concealed that will not be disclosed, or hidden that will not be made known"
+    - Thus "will not be made known" is about hypocrisy (claiming to have moral standards which your own behavior doesn't conform to)
+    - If you are a hypocrate, you will eventually get caught
+  - Luke 12:5 "Fear him who after killing of the body, has the power to throw you into hell"
+    - God alone has the power to throw you into hell
+    - "hell" is actually "Geenna" in the original Greek which means place of the dead __not Hades__ 
+      - "Geenna" derives it's name from a space where people perpetually were burning city dump. It was also a place where human sacrifices were offered to pagan Gods
+    - "Fear him" means respect his authority, stand in awe of his majesty and trust in him. We can trust him because of Luke 12:6-7 "Yet not one of them is forgotten by God... Don't be afraid; you are worth more than many sparrows"
 
 
 
