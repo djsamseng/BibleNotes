@@ -242,7 +242,13 @@
     - "hell" is actually "Geenna" in the original Greek which means place of the dead __not Hades__ 
       - "Geenna" derives it's name from a space where people perpetually were burning city dump. It was also a place where human sacrifices were offered to pagan Gods
     - "Fear him" means respect his authority, stand in awe of his majesty and trust in him. We can trust him because of Luke 12:6-7 "Yet not one of them is forgotten by God... Don't be afraid; you are worth more than many sparrows"
-
-
+  - Luke 12:9 "But he who disowns me before men will be disowned before the angels of God"
+    - Disowned = "deny". The same word was used in Peter's denial when he denied knowing Christ three times. Yet Peter was forgiven. So maybe it's just a temporary disowning until you come back to Jesus?
+  - Luke 12:10 "but anyone who blasphemes against the Holy Spirit will not be forgiven"
+    - It seems that only Satan can blaspheme agains the Holy Spirit since otherwise these two sentences would conflict
+      - Mark 3:28 "all the sins and blasphemies of men will be forgiven them. But whoever blasphemes against the Holy spirit will never be forgiven"
+      - Matthew 12:31 "every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven."
+        - Satan = the blasphemy against the Spirit
+        - Men = forgiven
 
 
