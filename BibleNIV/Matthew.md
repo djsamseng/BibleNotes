@@ -250,5 +250,5 @@
       - Matthew 12:31 "every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven."
         - Satan = the blasphemy against the Spirit
         - Men = forgiven
-
-
+- Matthew 10:37 Anyone who loves his father or mother more than me is not worthy of me"
+  - Is anyone worthy of Jesus? Jesus is a gift
