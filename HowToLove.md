@@ -15,9 +15,12 @@
 ### People to People
 - Volunteering at NYP hosting activities on weekends to help ease the boredom of the weekends
 - Engaging and interactive presentations that spark the creativity and inspiration of high school and college students
+- **Anonymously** Feed the hungry, cure the sick, shelter the homeless.
+   - **Anonymously** Giving people a second chance. Cloth them, feed them, bathe them and help them regain their strength. It could be a homeless person, a vet, a burned out collegue, someone who lost their job or their family
+   - Be careful [Family takes in homeless and is murdered](https://qr.ae/pvW4VE)
 - Jesus was wise in saying that he came to save those who are humble and not the proud. He teaches us to move on (wipe our feet and brush off the dirty) from those who don't hear our message and pursue those who want to change
   - Be careful [https://qr.ae/pvqMex](https://qr.ae/pvqMex) to help and love people not enable destructive behavior
-  - Be careful [Family takes in homeless and is murdered](https://qr.ae/pvW4VE)
+ 
   
 ### People to World
 - A healthy environment. Energy alternatives. Anti-matter batteries. Restoring the biosphere and removing the toxins from the food chain that makes us sick
