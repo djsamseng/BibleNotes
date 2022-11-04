@@ -250,5 +250,10 @@
       - Matthew 12:31 "every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven."
         - Satan = the blasphemy against the Spirit
         - Men = forgiven
-- Matthew 10:37 Anyone who loves his father or mother more than me is not worthy of me"
+- Matthew 10:37 "Anyone who loves his father or mother more than me is not worthy of me"
   - Is anyone worthy of Jesus? Jesus is a gift
+  - Jesus is warning that conflict can even arise between members of the same family. And that you should choose believing in Jesus even if this causes family conflict.
+- Matthew 10:38 see Luke 9:24 "For whoever wants to save his life will lose it, but whoever loses his life for me will save it"
+  - No other saying of Jesus is given such emphasis. Found in all four gospels and in two of the gospels multiple times
+  - We will die on Earth, our attempts on saving our life on our own will fail. However if we give up our life to Jesus then Jesus will save us. 
+
