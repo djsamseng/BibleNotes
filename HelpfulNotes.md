@@ -11,3 +11,12 @@
   - Does it fit my values?
 - When we mistakenly believe that our God is distant, we fear. But when we recognize God is with us, we have faith
 - Many are the plans in a person's heart, but it is the Lord's purpose that prevails (Proverbs 19:21 NIV)
+- Then I heard the voice of the Lord saying "Whom shall I send? And who will go for us?" And I said, "Here am I. Send me!" (Isaiah 6:8)
+- Each of you should give what you have decided in your heart to give, not reluctantly or under compulsion, for God loves a cheerful giver. (2 Corinthians 9:7 NIV)
+  - I want to be a cheerful giver. I want to be a blessing to others deep down. But it must be by serving God. It must be God's will which means being a good steward
+- Remember how you felt after the Next Gen conference. God was showing you that you wanted to be a CEO. That God has been preparing you to give him glory in the spotlight running a company that builds others up. Remember how God has consistently put that on your heart since NYU.
+- It matters to God how we view him. God has feelings too. God loves it when we see him as a patient, kind, easy to live with God
+- Gives us today our daily bread (Matthew 6:11 NIV)
+  - Bread = provision
+  - Everything comes from God. We are not the creators or owners. We are the stewards
+  - Jesus asks only for his needs today. Our whole life can change in an instant. Put our faith in God, depend on God and live by God's power and provision
