@@ -107,6 +107,7 @@
     - Jesus is the vine, we are the branches, and the fruit is what we produce (John 15:5)
 - 21: Only he who does the will of God will enter the kingdom of heaven
   - This is the deciding factor on who enters the kingdom of heaven
+  > "The work of God is this: to believe in the one he has sent" (John 6:29)
   - Paul in Romans 10:9
     > If you confess with your mouth "Jesus is Lord" and believe in your heart that God raised him from the dead you will be saved
 - 22: Many will claim to have done God's work but Jesus will say "I never knew you" thus in order to do God's will in order to enter the kingdom of heaven you must have Jesus know you. According to Paul this happens by inviting Jesus into your heart. With Jesus in your heart you will do the will of God
