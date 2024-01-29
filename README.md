@@ -142,3 +142,15 @@ Discovering God
 - Later the church heard about people in a foreign country putting aside money to help each other in their community and the church wanted a piece of the pie
 - So don't fall for the church guilting you into giving them and **only them** money. The tithe goes to God, to helping God's people, to where God has put on your heart to give money in accordance to how God has called you to be a good steward.
 - Just because someone quotes a Bible verse doesn't make a scam not a scam. There are plenty of examples throughout history of the church abusing donations. I personally have fallen for this trap. I didn't trust what God had put in my heart because someone made me believe that my heart was evil by using Bible verses out of context. This still happens today. But don't give up! There are plenty of good causes and great people in the church doing great things with the donations they do receive. None of us are perfect. If it's on your heart to give, then give!
+
+
+## Judging and Discernment
+> “Do not judge, or you too will be judged. 2 For in the same way you judge others, you will be judged, and with the measure you use, it will be measured to you.
+> 3 “Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye? 4 How can you say to your brother, ‘Let me take the speck out of your eye,’ when all the time there is a plank in your own eye? 5 You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother’s eye.
+> 6 “Do not give dogs what is sacred; do not throw your pearls to pigs. If you do, they may trample them under their feet, and turn and tear you to pieces. (Matthew 7:1-6)
+
+- judge = krinete (greek) = *to form a condemning opinion about someone without knowledge*
+
+Versus discernment
+- judge = krino (greek) = *to approve, esteem, to prefer. to be of opinion, deem, think, to be of opinion. to determine, resolve, decree. to judge*
+
