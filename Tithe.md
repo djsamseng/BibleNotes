@@ -74,3 +74,16 @@ Full context where the offering was in order to build a physical sanctuary for t
 > Then Moses gave an order and they sent this word throughout the camp: “No man or woman is to make anything else as an offering for the sanctuary.” And so the people were restrained from bringing more,
 > because what they already had was more than enough to do all the work.
 
+### Leviticus
+#### Leviticus 27
+>  The LORD said to Moses, “Speak to the Israelites and say to them: ‘If anyone makes a special vow to dedicate a person to the LORD by giving the equivalent value,
+
+- The remainder of the chapter specifies how a special vow to the Lord should be made if one is to be made and then finishes with
+
+> “ ‘A tithe of everything from the land, whether grain from the soil or fruit from the trees, belongs to the LORD; it is holy to the LORD.
+
+- Reading the full chapter it really seems as though God is saying hey, if you want to give me a special vow, here's what I would like and that is the tithe
+- The tithe belongs to the Lord. This is not restricted or specified further here.
+
+
+
