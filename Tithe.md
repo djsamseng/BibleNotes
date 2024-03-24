@@ -147,7 +147,8 @@ Context before 3:10
 
 ## New Testament
 - There is no tithing requirement in the New Testament
-- Jesus mentions how the Jewish people tithe in a negative manner, for example > “Woe to you Pharisees, because you give God a tenth of your mint, rue and all other kinds of garden herbs, but you neglect justice and the love of God. You should have practiced the latter without leaving the former undone. (Luke 11:42)
+- Jesus mentions how the Jewish people tithe in a negative manner, for example
+> “Woe to you Pharisees, because you give God a tenth of your mint, rue and all other kinds of garden herbs, but you neglect justice and the love of God. You should have practiced the latter without leaving the former undone. (Luke 11:42)
 - After Jesus the tithe is not even mentioned
 - Giving to the poor, generousity and putting God first is encouraged
 
