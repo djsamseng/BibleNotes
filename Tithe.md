@@ -85,5 +85,75 @@ Full context where the offering was in order to build a physical sanctuary for t
 - Reading the full chapter it really seems as though God is saying hey, if you want to give me a special vow, here's what I would like and that is the tithe
 - The tithe belongs to the Lord. This is not restricted or specified further here.
 
+### Numbers
+#### Numbers 18
+
+> I give to the Levites all the tithes in Israel as their inheritance in return for the work they do while serving at the tent of meeting. (18:21)
+
+> When you receive from the Israelites the tithe I give you as your inheritance, you must present a tenth of that tithe as the Lord’s offering (18:26)
+
+- God gives the land to the Israelites as their inheritance. But the Levites do not get any. They are to be dedicated to the Lord (as priests) and receive the tithe as their inheritance in return for the work they do
+
+> The Lord said to Aaron, “You will have no inheritance in their land, nor will you have any share among them (18:20)
+
+### Deuteronomy
+- **God's commandments** to the Israelites to guide them as they inherit the promised land
+- After the 10 commandments, Moses writes
+> These are the commands, decrees and laws the Lord your God directed me to teach you to observe in the land that you are crossing the Jordan to possess, so that you, your children and their children after them may fear the Lord your God as long as you live by keeping all his decrees and commands that I give you, and so that you may enjoy long life. 3 Hear, Israel, and be careful to obey so that it may go well with you and that you may increase greatly in a land flowing with milk and honey, just as the Lord, the God of your ancestors, promised you. (Deuteronomy 6:1)
+
+#### Deuteronomy 14:22
+
+>  22 Be sure to set aside a tenth of all that your fields produce each year. 23 Eat the tithe of your grain, new wine and olive oil, and the firstborn of your herds and flocks in the presence of the Lord your God at the place he will choose as a dwelling for his Name, so that you may learn to revere the Lord your God always. 24 But if that place is too distant and you have been blessed by the Lord your God and cannot carry your tithe (because the place where the Lord will choose to put his Name is so far away), 25 then exchange your tithe for silver, and take the silver with you and go to the place the Lord your God will choose. 26 Use the silver to buy whatever you like: cattle, sheep, wine or other fermented drink, or anything you wish. Then you and your household shall eat there in the presence of the Lord your God and rejoice. 27 And do not neglect the Levites living in your towns, for they have no allotment or inheritance of their own. 28 At the end of every three years, bring all the tithes of that year’s produce and store it in your towns, 29 so that the Levites (who have no allotment or inheritance of their own) and the foreigners, the fatherless and the widows who live in your towns may come and eat and be satisfied, and so that the Lord your God may bless you in all the work of your hands.
+
+- God's commandment is for us to eat the tithe in God's presence
+- > 27 And do not neglect the Levites
+- Every three years bring all the tithe for those to eat
+
+### Proverbs
+- King Solomon sharing words of wisdom
+
+#### Proverbs 3:9
+> Honor the Lord with your wealth, with the firstfruits of all your crops; 10 then your barns will be filled to overflowing, and your vats will brim over with new wine.
+
+- Refers back to the tithe established in Numbers and Deuteronomy. Personally I think this is more in spirit with Deuteronomy's tithe
+
+#### Proverbs 11:24
+> One person gives freely, yet gains even more; another withholds unduly, but comes to poverty. 25 A generous person will prosper; whoever refreshes others will be refreshed. 26 People curse the one who hoards grain, but they pray God’s blessing on the one who is willing to sell.
+
+- Generosity is a good thing, for you and for others. This is just straight wisdom even outside the context of God.
+
+#### Proverbs 28:27
+> Those who give to the poor will lack nothing, but those who close their eyes to them receive many curses.
+
+- Also true, even outside the context of God
+
+### Nehemiah
+#### Nehemiah 10:37
+- Reiterating the tithe established in Numbers
+- The Israelites give a tithe to the Levites
+- The Levites collect tithes in return for their work
+- The Levites bring a tenth of the tithe they receive to the storerooms of the treasury in the house of God
+
+### Malachi
+- Governer Nehemiah spearheaded reforms to help the poor and to bring tithes faithfully (See Nehemiah). When Nehemiah came back to Jerusalem he found that tithes were ignored, the Sabbath broken, priests had become corrupt, etc. This is when Malachi may have been written.
+- In Nehemiah the tithe is the Number's version of giving to the Levite priests. This is referring to the tithe for the Israelites inheriting the promised land
+
+#### Malachi 3:10
+> Bring the whole tithe into the storehouse, that there may be food in my house. Test me in this,” says the Lord Almighty, “and see if I will not throw open the floodgates of heaven and pour out so much blessing that there will not be room enough to store it. (Malachi 3:10)
+
+Context before 3:10
+> Return to me, and I will return to you,” says the Lord Almighty. “But you ask, ‘How are we to return?’ 8 “Will a mere mortal rob God? Yet you rob me. “But you ask, ‘How are we robbing you?’ “In tithes and offerings. 9 You are under a curse—your whole nation—because you are robbing me. 
+
+
+## New Testament
+- There is no tithing requirement in the New Testament
+- Jesus mentions how the Jewish people tithe in a negative manner, for example > “Woe to you Pharisees, because you give God a tenth of your mint, rue and all other kinds of garden herbs, but you neglect justice and the love of God. You should have practiced the latter without leaving the former undone. (Luke 11:42)
+- After Jesus the tithe is not even mentioned
+- Giving to the poor, generousity and putting God first is encouraged
+
+
+
+
+
 
 
