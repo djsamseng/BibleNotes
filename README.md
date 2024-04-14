@@ -154,3 +154,9 @@ Discovering God
 Versus discernment
 - judge = krino (greek) = *to approve, esteem, to prefer. to be of opinion, deem, think, to be of opinion. to determine, resolve, decree. to judge*
 
+## The last will be first and the first will be last
+- This is about God's generosity for letting us enter the kingdom of heaven since no matter how hard we try we cant do it on our own, yet God lets in the last of us (sinners)
+  - Matthew 20 parable of paying the workers. God's generosity for letting us enter the kingdom of heaven
+  - Matthew 19 it is hard for a rich man to enter the Kingdom of heaven, but with God app things are possible. Gods generosity for letting us enter the kingdom of heaven
+  - Mark 10 giving up things of this world to follow Jesus. How hard it is to enter the kingdom of heaven
+  - Luke knowing God and Jesus knowing you in order to enter the kingdom of God
