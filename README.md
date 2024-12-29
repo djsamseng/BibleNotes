@@ -160,3 +160,63 @@ Versus discernment
   - Matthew 19 it is hard for a rich man to enter the Kingdom of heaven, but with God app things are possible. Gods generosity for letting us enter the kingdom of heaven
   - Mark 10 giving up things of this world to follow Jesus. How hard it is to enter the kingdom of heaven
   - Luke knowing God and Jesus knowing you in order to enter the kingdom of God
+
+
+## Flashcards
+- Be strong and courageous, and do not fear, for the Lord your God will always be near - Joshua 1:9
+- Let your light shine before others, so that they may see your good deeds and glorify your Father in heaven - Matthew 5:16 (You are a light to the world)
+- Do not swear an oath at all - Matthew 5:34
+- Turn the other cheek - Matthew 5:39 (disarm the evil person)
+- Do not let your left hand know what your right hand is doing - Matthew 6:3 (practicing righteousness should not be for the purpose of social approval, being seen by others)
+- And when you pray, do not keep on babbling like pegans - Matthew 6:7 (because your Father already knows what you need)
+- The eye is the lamp of the body. If your eyes are healthy, your whole body will be full of light - Matthew 6:22 (Storing up treasures in heaven, cannot serve both God and money)
+- You cannot serve both God and money. Either you will hate one and love the other - Matthew 6:24
+- But seek first His kingdom and His righteousness and all these things will be given to you as well - Matthew 6:33 (Do not worry about food, drinks, clothing or tomorrow. Good things will come to the righteous value providers)
+- You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother's eye - Matthew 6:5 (Empathy over judgement. Don't be hypocritical)
+- Do not give dogs what is sacred; do not throw your pearls to pigs. If you do, they may trample them under their feet, and turn and tear you to pieces - Matthew 7:6 (Don't critize people who aren't ready to hear it)
+- Ask and it will be given to you; seek and you will find; knock and the door will be opened to you - Matthew 7:7 (Let people seek truth, then they will be ready to hear it. Right after don't judge.)
+- By their fruit you will recognize them - Matthew 7:15
+- Only the one who does the will of my Father will enter the kingdom of heaven. I never knew you. Away from me you evildoers. - Matthew 7:21-23
+- Wise man who built his house on the rock - Matthew 7:24 (hears these words of mine and puts them into practice)
+- you must not claim 'This is a message from the Lord.' - Jeremiah 23:38
+- Do not listen to what the prophets are prophesying to you; they fill you with false hopes. they speak visions from their own minds not from the mouth of the Lord - Jeremiah 23:16 (God speaking)
+- Great are the works of the Lord; they are pondered by all who delight in them - Psalms 111:2 (Pursue science)
+- I am he - John 4:26 (Jesus claims to be the Messiah)
+- Earn the food they eat. We worked night and day, laboring and toiling so that we would not be a burden to any of you - 2 Thessalonians 3:12 (3:7)
+- Commit to the Lord whatever you do, and he will establish your plans - Proverbs 16:3
+- Trust in the Lord with all your heart and lean not on your own understanding. In all your ways submit to him and he will make your paths straight - Proverbs 3:5
+- Do not spend your strength on women, your vigor on those who ruin kings - Proverbs 31:3
+- Love is patient, love is kind. It does not envy, it does not boast, it is not proud - 1 Corinthians 13:4
+- 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
